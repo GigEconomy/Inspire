@@ -3,3 +3,6 @@ https://www.youtube.com/@YourDriverMike
 
 Favorite:
 - [6 NEW Gig Apps No One Is Talking About In 2024](https://youtu.be/n3m8MiscamE)
+
+# Top.Favorite:
+- [Renting A TESLA To Drive Uber For A WEEK (How Much I Made!)](https://youtu.be/peObrNJ5kqw)
