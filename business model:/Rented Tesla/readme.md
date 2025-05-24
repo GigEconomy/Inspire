@@ -5,3 +5,6 @@
 
 ## Driver Eddie
 - [I rented a Tesla for Uber. Was it worth it?](https://youtu.be/wDtgXaBJlc0)
+
+## @Therideshareguy
+- [Does It Make Sense To Rent A Tesla Through Uber/Hertz To Drive Uber?!](https://youtu.be/FCf9ZxDL05s)
